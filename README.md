@@ -15,6 +15,17 @@ Please call me Brian! 🔆
         - ジャンルは何でも好きですが、最近は特にチル系、アニソンDJがすきです
         - あんまり型にとらわれることなく、自分の好きな音楽流すのがすきです😊
 
+## 性格分析結果
+### ストレングス・ファインダー
+- 最上思考
+- 適応性
+- 着想
+- 共感性
+- ポジティブ
+
+### 16Personalities
+- 運動家[ENFP]
+    - [ENFP 型の性格](https://www.16personalities.com/ja/enfp%E5%9E%8B%E3%81%AE%E6%80%A7%E6%A0%BC)
 
 ## SNS
 
